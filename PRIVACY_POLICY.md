@@ -163,4 +163,4 @@ By using Turtle, you consent to this Privacy Policy and agree to its terms.
 
 **End of Privacy Policy**
 
-For the most current version of this policy, please check within the Turtle app or contact us at swapnilpatel@me.com.
+For the most current version of this policy, please check within the Turtle app.
